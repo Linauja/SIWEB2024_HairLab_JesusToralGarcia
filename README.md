@@ -14,3 +14,6 @@ Jesús Toral García [ jtg00026@red.ujaen.es ]
 - Carmen Martínez Cruz - (BDD)
 
 ### **Universidad de Jaén - 2024**
+
+# Planificación
+## La organización-institución-empresa: Plan de Investigación de HairLab
